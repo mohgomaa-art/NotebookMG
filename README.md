@@ -136,8 +136,8 @@ Subscribe on YouTube for release announcements and full walkthroughs.
 
 For early access, collaboration, or inquiries:
 
-- Email: your@email.com
-- YouTube: https://youtube.com/@yourchannel
+- Email: mnile23@gmail.com
+- YouTube: https://www.youtube.com/@MohamedGomaaPro
 - Website: Coming Soon
 
 ---
